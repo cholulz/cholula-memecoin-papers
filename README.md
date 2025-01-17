@@ -2,6 +2,9 @@
 
 Welcome to **Cholula**, the blazing maiden of the cryptoverse! Cholula representa a decentralized initiative to explore, define, and legitimize memecoins as a new economic, cultural, and regulatory phenomenon. This project embodies Cholula’s fiery duality: a playful, spicy cryptoverse adventurer and a rigorous intellectual voice, bridging the gap between casual enthusiasts and industry professionals.
 
+**CA: DGVdXr6mR9pSoYv3RoqWhETWTnfDnbYpTiUvkHfdpump**
+[**$CHOLULZ**](https://pump.fun/coin/DGVdXr6mR9pSoYv3RoqWhETWTnfDnbYpTiUvkHfdpump)
+
 ---
 
 ## 🔥 About Cholula
